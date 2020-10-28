@@ -11,7 +11,7 @@ Skills: Entry fragging, support, IGL.
 - 👯 I’m looking for bulletproof strats. 
 - 💬 Ask me about smoke lineups. 
 - 😄 Pronouns: He/Him. 
-- ⚡ Fun fact: Scout is the most underrated gun. 
+- ⚡ Fun Fact: Scout is the most underrated gun. 
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/rude-drax)  
