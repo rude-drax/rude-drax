@@ -8,7 +8,7 @@ Currently gaming day and night, climbing my way up till Global Elite.
 Skills: Entry fragging, support, IGL.
 
 - 🔭 I am currently practicing my aim.  
-- 👯 I’m looking for bulletproof strats. 
+- 👯 I am looking for bulletproof strats. 
 - 💬 Ask me about smoke lineups. 
 - 😄 Pronouns: He/Him. 
 - ⚡ Fun fact: Scout is the most underrated gun. 
