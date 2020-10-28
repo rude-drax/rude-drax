@@ -7,7 +7,7 @@ Currently gaming day and night, climbing my way up till Global Elite.
 
 Skills: Entry fragging, support, IGL.
 
-- 🔭 I'm currently practicing my aim.  
+- 🔭 I am currently practicing my aim.  
 - 👯 I’m looking for bulletproof strats. 
 - 💬 Ask me about smoke lineups. 
 - 😄 Pronouns: He/Him. 
